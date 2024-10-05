@@ -21,7 +21,7 @@ I’m looking to collaborate on:
 
 ## 📫 How to Reach Me
 You can reach me at:
-- Email: binil.vincent@example.com
+- Email: binilvincent2026@mca.sjcetpalai.ac.in
 - LinkedIn: [Your LinkedIn Profile](https://www.linkedin.com/in/yourprofile)
 - Twitter: [@YourTwitterHandle](https://twitter.com/yourhandle)
 
